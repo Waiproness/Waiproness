@@ -71,7 +71,7 @@ A space for my journey across technology, learning, and the student community.
 
 I'm always interested in exchanging ideas and exploring opportunities to build something useful together.
 
-[LinkedIn](https://www.linkedin.com/in/theerawat-puvekit-274a6b268/) · [Facebook](https://www.facebook.com/profile.php?id=100009257818357) · [GitHub](https://github.com/Waiproness)
+[LinkedIn](https://www.linkedin.com/in/theerawat-puvekit-274a6b268/) · [Instagram](https://www.instagram.com/__.waity.__/) · [Facebook](https://www.facebook.com/profile.php?id=100009257818357) · [GitHub](https://github.com/Waiproness)
 
 ---
 
