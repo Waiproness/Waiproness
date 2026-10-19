@@ -1,6 +1,6 @@
 <div align="center">
 
-# Hi, I'm Theerawat 👋
+# Hi, I'm Wai 👋
 ### Google Student Ambassador · Developer · Creative Thinker
 
 Building useful things where technology meets design.
